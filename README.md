@@ -7,6 +7,7 @@ hi, i'm kleo, i'm in a whole lot of fandoms! i'll list the ones i am currently i
 - moral orel
 - hannibal
 - house
+- A ReGect
 
 and these are past ones that i still like, just not as big on anymore!
 - IASIP 
