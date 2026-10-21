@@ -2,25 +2,24 @@
 FANDOMS
 
 hi, i'm kleo, i'm in a whole lot of fandoms! i'll list the ones i am currently in / fixated on right now!
-- spongebob ** this one is BIG right now!!
-- tadc
+- rygosverse ** this one is BIG right now!!
 - bojack horseman
-- yellowjackets
-- house
 - moral orel
+- hannibal
+- house
 
 and these are past ones that i still like, just not as big on anymore!
 - IASIP 
 - gravity falls
 - mr. robot
 - peacemaker
-- supergirl
+- supergirl (CW)
 - superman
-- flash
+- flash (CW)
 - stanley Parable
 - sherlock (BBC)
 - misfits
 - the good place
-- hannibal
 - date everything!
 - good omens
+
